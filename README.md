@@ -1,1 +1,1 @@
-The World Chess Federation (FIDE) is the international governing body for chess, responsible for organizing world championships and promoting the game globally.
+The FINA Water Polo World Championships is the premier international tournament for water polo, featuring national teams from around the world competing for the championship title.
