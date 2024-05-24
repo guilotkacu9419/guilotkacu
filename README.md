@@ -1,1 +1,1 @@
-The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
+The word "checkmate" comes from the Persian phrase "shāh māt," which means "the king is helpless" or "the king is dead."
