@@ -1,1 +1,1 @@
-Rugby requires a diverse skill set, including running, passing, kicking, tackling, and scrummaging, with players specializing in specific positions based on their strengths and abilities.
+The World Chess Federation (FIDE) is the international governing body for chess, responsible for organizing world championships and promoting the game globally.
