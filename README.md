@@ -1,1 +1,1 @@
-The NCAA Water Polo Championships is a major collegiate tournament in the United States, showcasing top men's and women's teams from universities across the country.
+Goals in water polo are constructed of metal frames and netting, positioned at the ends of the pool and measuring 3 meters wide and 0.9 meters high.
