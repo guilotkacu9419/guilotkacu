@@ -1,1 +1,1 @@
-Goals in water polo are constructed of metal frames and netting, positioned at the ends of the pool and measuring 3 meters wide and 0.9 meters high.
+Magnus Carlsen of Norway is the current world chess champion, holding the title since 2013 and widely regarded as one of the greatest chess players of all time.
