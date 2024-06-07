@@ -1,1 +1,1 @@
-Magnus Carlsen of Norway is the current world chess champion, holding the title since 2013 and widely regarded as one of the greatest chess players of all time.
+Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
