@@ -1,1 +1,1 @@
-Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
+Rugby jerseys often feature distinctive designs and colors representing national teams or club identities, with players wearing their team's colors with pride during matches.
