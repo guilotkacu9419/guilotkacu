@@ -1,1 +1,1 @@
-The Rugby Championship, formerly known as the Tri Nations, is an annual rugby union competition between the national teams of New Zealand, Australia, South Africa, and Argentina.
+Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
