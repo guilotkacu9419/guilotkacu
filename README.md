@@ -1,1 +1,1 @@
-Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
+The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
