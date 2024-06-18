@@ -1,1 +1,1 @@
-The water polo ball is similar in size to a volleyball but is heavier and designed to float on the water's surface, allowing players to grip and pass it easily.
+The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
