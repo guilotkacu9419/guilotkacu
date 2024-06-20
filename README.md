@@ -1,1 +1,1 @@
-Water polo features both men's and women's tournaments at the Olympic Games, with teams competing in a series of matches to determine the medal winners.
+Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
