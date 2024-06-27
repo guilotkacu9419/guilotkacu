@@ -1,1 +1,1 @@
-Algebraic notation is the standard method for recording chess moves, with each square on the board identified by a unique letter and number combination.
+The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
