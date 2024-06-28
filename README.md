@@ -1,1 +1,1 @@
-The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
+The Sicilian Defense, the Ruy Lopez, and the Queen's Gambit are among the most popular and well-studied chess openings, each offering unique strategic opportunities.
