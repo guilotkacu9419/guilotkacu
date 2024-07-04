@@ -1,1 +1,1 @@
-The word "checkmate" comes from the Persian phrase "shāh māt," which means "the king is helpless" or "the king is dead."
+Water polo made its Olympic debut at the 1900 Summer Olympics in Paris, with Great Britain winning the gold medal.
