@@ -1,1 +1,1 @@
-Water polo made its Olympic debut at the 1900 Summer Olympics in Paris, with Great Britain winning the gold medal.
+The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
