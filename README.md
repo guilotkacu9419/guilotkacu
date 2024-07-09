@@ -1,1 +1,1 @@
-The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
+The penalty shot, taken from a designated spot in front of the goal, gives the attacking player a one-on-one opportunity to score against the goalkeeper.
