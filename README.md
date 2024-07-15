@@ -1,1 +1,1 @@
-The six types of chess pieces are the king, queen, rook, bishop, knight, and pawn, each with its own unique movement capabilities.
+Coaches play a crucial role in developing game plans, organizing set plays, and making tactical adjustments during matches to exploit opponents' weaknesses.
