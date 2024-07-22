@@ -1,1 +1,1 @@
-Players must tread water or swim at all times during the game, using techniques like the eggbeater kick to maintain their position and move around the pool efficiently.
+Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.
