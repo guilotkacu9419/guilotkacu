@@ -1,1 +1,1 @@
-Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.
+The knight is the only chess piece that can "jump" over other pieces on the board, moving in an L-shape pattern.
