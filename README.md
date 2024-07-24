@@ -1,1 +1,1 @@
-The knight is the only chess piece that can "jump" over other pieces on the board, moving in an L-shape pattern.
+The word "checkmate" comes from the Persian phrase "shāh māt," which means "the king is helpless" or "the king is dead."
