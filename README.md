@@ -1,1 +1,1 @@
-The Sicilian Defense, the Ruy Lopez, and the Queen's Gambit are among the most popular and well-studied chess openings, each offering unique strategic opportunities.
+The modern rules of chess were standardized in Europe during the 15th century, with the game gaining popularity among nobility and intellectuals.
