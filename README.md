@@ -1,1 +1,1 @@
-The modern rules of chess were standardized in Europe during the 15th century, with the game gaining popularity among nobility and intellectuals.
+Rugby requires a diverse skill set, including running, passing, kicking, tackling, and scrummaging, with players specializing in specific positions based on their strengths and abilities.
